@@ -1,1 +1,1 @@
-chào
+xin chao cac ban 
